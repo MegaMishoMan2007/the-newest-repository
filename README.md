@@ -1,2 +1,2 @@
 # the-newest-repository
-Neshto + bla-bla-bla = Boyko
+Neshto + bla-bla-bla-bla-bla-bla-bla-bla-bla-bla-bla-bla-bla-bla-bla-bla-bla-bla-bla-bla-bla-bla-bla-bla-bla-bla-bla-bla-bla-bla-bla-bla-bla-bla-bla- = Boyko
