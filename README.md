@@ -1,2 +1,2 @@
 # the-newest-repository
-I'm cool :~) (Misho) 
+I'm cool :~) (Misho), because he's not cool!!!
